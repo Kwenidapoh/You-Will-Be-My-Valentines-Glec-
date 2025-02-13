@@ -4,4 +4,3 @@ Sugot nasa yaaa
 Nahuya ko daad mag chat cmo
 muna diri ko nalang gin himo
 hehehehehe
-🥰🥰🥰🥰🥰
